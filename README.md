@@ -3,9 +3,9 @@
 **Creative Strategist | Internal Comms Leader | Tech-Savvy Project Driver**  
 _“The grass is greener where you water it.”_
 
-Hi, I’m Candice — an ambitious, people-first creative with 10 years of professional experience across internal communications, operations, executive support, and project management.
+Hi, I’m Candice, an ambitious, people-first creative with 10 years of professional experience across internal communications, operations, executive support, and project management.
 
-After leading global initiatives at ETG, I’m now building a career around **storytelling, systems design, team culture, and impact** — blending technology and purpose in everything I do.
+After leading global initiatives at ETG, I’m now building a career around **storytelling, systems design, team culture, and impact** , blending technology and purpose in everything I do.
 
 ---
 
